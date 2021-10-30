@@ -1,1 +1,1 @@
-### 1 ---->  GOD OF WAR {FULL SERIES}
+### GOD OF WAR {FULL SERIES}
